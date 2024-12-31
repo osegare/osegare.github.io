@@ -1,1 +1,0 @@
-# osegare.github.io
